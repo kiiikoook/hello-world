@@ -1,2 +1,6 @@
 # hello-world
-just another repository
+
+Hallo Semuanya!
+
+Kiiikook here, saya baru belajar!).
+Ajarin saya ya
